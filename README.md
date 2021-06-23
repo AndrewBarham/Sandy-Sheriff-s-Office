@@ -1,13 +1,12 @@
 # Sandy-Sheriff-s-Office
 
-TOS:
-Resell and/or leak can go into legal actions. There is no tolerance for any reselling nor leaking. Refunds are unavailable but purchase is able to be configured by Five Design's to your wants and needs. Any and all accusations will be taken sinuously and have dispensary actions with them. There is no tolerance for taking credit for Five Design's products.
+TOS: Resell and/or leak can go into legal actions. There is no tolerance for any reselling nor leaking. Refunds are unavailable but purchase is able to be configured by Five Design's to your wants and needs. Any and all accusations will be taken sinuously and have dispensary actions with them. There is no tolerance for taking credit for Five Design's products.
 
-MADE BY Five Design's
-Andrew Barham 12/30/2020
+Link: https://discord.gg/m3MrcvVNgJ
 
+ 
 
-Five Design's Community
+Five Dealership Community
 a new Trades Market established in December 2020. We like to provide you with anything you need for Fivem experience. We have lots of custom vehicles to choose from and lots of options for you to Trade and buy like ped and vehicle.
 
 Our Mission:
@@ -34,4 +33,3 @@ Donation perks:
 50$> 50% off all purchases + premium donate role
 
 Developer positions open now! You are free to apply in the discord. Join today!
-Link: https://discord.gg/Wrvqk58GVA 
